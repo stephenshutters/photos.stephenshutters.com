@@ -1,1 +1,1 @@
-# photos.stephenshutters.com
+# stephenshutters.com
